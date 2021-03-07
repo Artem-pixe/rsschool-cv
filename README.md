@@ -1,1 +1,0 @@
-https://Artem-pixe.io/rsschool-cv/cv
